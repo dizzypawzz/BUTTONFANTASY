@@ -6,7 +6,7 @@ my twitter is buttonfantasy so is my discord if u wnna friend me!!
 
 im a huge astro selfshipper--im nonsharing too btw eeek!!!
 
-huge cuddle comfort!!! CUDDLE ME!!!!!
+huge cuddle comfort!!! CUDDLE ME!!!!! (even bigger cuddle comfort if uoure an astro pony,,)
 
 also you can literally whisper me your discord and tell me to call i love calling random poeple dude oh my gosh but i must warn that i YAP i YABBER
 
